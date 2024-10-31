@@ -1,6 +1,6 @@
 # 2023-2024 Yılı Staj Süreci Notları
 
-> 🚨 Staj Danışman hocaelıyla beraber **TEYİT EDEREK** ilerleyiniz.
+> 🚨 Staj Danışman hocasıyla beraber **TEYİT EDEREK** ilerleyiniz.
 
 > ⚠️ **Not:** Bu notlar kendi öğrenim yılımızda (2023-2024) kendi arkadaşlarımızla yaşadığımız duruma dayanmaktadır. Kurallarda değişiklik olup olmadığına bakınız.
 
